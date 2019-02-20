@@ -24,4 +24,4 @@
   
 
 ### 联系方式
-  yoghurtrain@gmail.com
+  yoghourtrain@gmail.com
